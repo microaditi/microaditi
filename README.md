@@ -1,4 +1,4 @@
-## Hey, I'm [ADITI JAIN!](microaditi.github.io) 👋
+## Hey, I'm [ADITI JAIN!](https://microaditi.github.io/) 👋
 
 
 <a href="https://twitter.com/microaditi">
